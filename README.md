@@ -1,6 +1,4 @@
 ## Hi there 👋
-
-# 💫 About Me:
 I'm Currently looking for a job
 
 
